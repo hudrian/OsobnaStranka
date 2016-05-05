@@ -1,0 +1,2 @@
+# OsobnaStranka
+nieco o omne
